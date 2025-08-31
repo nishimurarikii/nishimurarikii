@@ -4,6 +4,7 @@
 
 ##### <p align="center">ni-ki  or  riki</p>
 ##### <p align="center">15   .    shi . ix . any  pronouns</p>
+##### <p align="center">nonsharing g1337 yume, doubles DNI.</p>
 ##### <p align="center">more  info  in  bundlrs</p>
 ##### <p align="center">sign  my  atabook  please  !!</p>
 
